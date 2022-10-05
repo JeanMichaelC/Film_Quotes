@@ -17,4 +17,18 @@
 > **Matt:** Legal blocks cover offspring too. Been there. That hurts. 
 **Joe:** I couldn't even tell if it was a boy or a girl. I know it sounds stupid... but seeing something was better than nothing. So I kept going back. It became an annual pilgrimage. Once a year I'd head up there and watch them from a distance. Watching the kid grow up, you know?
 
-  
+## Season 4
+
+### E4: Hang the DJ
+
+> **Frank:** Well I learned what it's like to co-habit with someone I despise, is that useful for the system?
+**Coach:** Everything happens for a reason.
+
+> **Amy:** What if there is no scrutiny, it's just putting su together in any old order, and we all go along with it 'cause they're always telling us how clever it is?
+**Frank:** Yeah, but it does put people with the one. It's got a 99.8% success rate. 
+**Amy:** But how do you know they're perfect matches? I mean, what if all it's actually doing is gradually wearing us down, putting us in one relationship after another for random durations in a random sequence? Each time you get a little bit more pliable, a little bit more broken, until eventually it coughs up the final offering and says that's the one. 
+
+> **Amy:** Coach?
+**Coach:** Yes Amy?
+**Amy:** Count to four
+**Coach:** One, two, three, four [Device sinks]
