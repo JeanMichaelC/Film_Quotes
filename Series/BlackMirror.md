@@ -24,9 +24,13 @@
 > **Frank:** Well I learned what it's like to co-habit with someone I despise, is that useful for the system?
 **Coach:** Everything happens for a reason.
 
+---
+
 > **Amy:** What if there is no scrutiny, it's just putting su together in any old order, and we all go along with it 'cause they're always telling us how clever it is?
 **Frank:** Yeah, but it does put people with the one. It's got a 99.8% success rate. 
 **Amy:** But how do you know they're perfect matches? I mean, what if all it's actually doing is gradually wearing us down, putting us in one relationship after another for random durations in a random sequence? Each time you get a little bit more pliable, a little bit more broken, until eventually it coughs up the final offering and says that's the one. 
+
+---
 
 > **Amy:** Coach?
 **Coach:** Yes Amy?
